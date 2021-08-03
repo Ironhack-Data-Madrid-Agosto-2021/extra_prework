@@ -5,3 +5,5 @@ Si quieres ser una auténtica DataWarrior termina todos los ejercicios propuesto
 
 
 ¡¡¡Recuerda que tu aprendizaje depende de tu esfuerzo!!!
+
+![vikings](https://media.giphy.com/media/bED7wOQUgr7rO/giphy.gif)
